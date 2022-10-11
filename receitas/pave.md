@@ -1,4 +1,4 @@
-# Pavê
+# Pavê de Chocolate
 
 ### Ingredientes:
 
